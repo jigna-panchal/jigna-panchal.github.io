@@ -1,1 +1,0 @@
-# jigna-panchal.github.io
